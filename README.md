@@ -1,3 +1,3 @@
 # Certificates
-🌺 Certificados de cursos concluídos e currículo atualizado. <br>
-🌼 Certificates of completed courses and updated curriculum.
+🌺 Certificados de escolaridade, cursos concluídos e currículo atualizado. <br>
+🌼 Schooling certificates, completed courses and updated curriculum.
